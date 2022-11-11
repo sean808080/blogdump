@@ -11,7 +11,7 @@ tag:: #quote #wisdom #creativity #blog
 #TennesseeWilliams
 
 
-![350](./assets/Screenshot%202022-10-28%20at%209.20.50%20AM.jpg.md)
+![350](./assets/Screenshot%202022-10-28%20at%209.20.50%20AM.jpg)
 
 See this Instagram photo by @patriciablack
 https://www.instagram.com/p/CRmIqd2NESk/?utm_source=ig_web_button_native_share
